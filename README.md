@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Data Analysis and Project Management Projects
 - 📫 How to reach me : Onlydewale@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: Your cicle will determine your oldag
+- ⚡ Fun fact: Hardwork with deligence rule the world
 - ...
 
 <!---
