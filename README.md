@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dewale-Ade
 - 👀 I’m interested in Data Analysis and Project Management
-- 🌱 I’m currently improvement Data Analysis
+- 🌱 I’m currently improving on Data Analysis
 - 💞️ I’m looking to collaborate on Data Analysis and Project Management Projects
 - 📫 How to reach me : Onlydewale@gmail.com
 - 😄 Pronouns: He
